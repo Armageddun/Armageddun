@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Armageddun
-- 👀 I’m interested in kids
+- 👀 I’m interested in Creating 
 - 🌱 I’m currently learning C blus blus
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: not now
